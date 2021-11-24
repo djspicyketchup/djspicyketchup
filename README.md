@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @djspicyketchup
+- 👀 I’m interested in eletronic music, audio tech, logistics / supply chain, product management, and the democratization of tech.
+- 🌱 I’m currently learning how to write my own VSTs for use in Ableton.
+- 💞️ I’m looking to collaborate on audio plugins or any good idea you may have.
+- 📫 How to reach me instagram @dj_spicyketchup or djspicyketchup@gmail.com
